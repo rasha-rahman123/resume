@@ -14,7 +14,7 @@ and holistic health through thoughtful leadership and strategic innovation.
 
 ## Education
 
-**University of California, Los Angeles**  
+**University of California, Los Angeles (UCLA)**  
 BA Cognitive Science / Psychology, 2018–2020
 
 **Long Beach City College**  
